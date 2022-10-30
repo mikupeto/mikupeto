@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mikupeto
+- 👀 I’m interested in Hatsune Miku

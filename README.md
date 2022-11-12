@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @mikupeto
-- 👀 I’m interested in Hatsune Miku
+- 👀 I’m interested in Hatsune Miku and rhythm games
